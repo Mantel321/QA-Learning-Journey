@@ -72,8 +72,7 @@
 
 ---
 
-## 📫 Kontakt
-*[Später hier LinkedIn/Email einfügen wenn du möchtest]*
+
 
 ---
 
